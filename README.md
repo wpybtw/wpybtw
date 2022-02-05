@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Pengyu Wang
+### Hi there 👋,
 
 I am currently a PhD. Candidate at Shanghai Jiao Tong University. 
 
